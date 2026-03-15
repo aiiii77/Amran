@@ -26,7 +26,7 @@
   
 | الاسم | Name | Telegram |
 |-------|------|----------|
-| **عمران الضحياني** | **Emran Al-Dohaini** | [@abu_jamal777](https://t.me/abu_jamal777) |
+| **عمران الضحياني** | **Emran Al-Dohaini** | [@abu_jamal777](https://t.me/freeang12) |
 
 </div>
 
